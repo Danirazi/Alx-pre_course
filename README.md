@@ -1,1 +1,1 @@
-On my to becoming a Software Engineer
+On my way to becoming a Software Engineer
